@@ -1,2 +1,2 @@
 # kaifatuni.github.io
-## Party Beta
+## My Latest Site. Any Advice, message me fast. Live on 1 June.
